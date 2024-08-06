@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Justin Stith
-- 👀 I’m interested in coding, investing, and Jesus Christ
+- 👀 I’m interested in coding, investing, and GOD
 - 🌱 I’m currently learning Compsci.
 
 
